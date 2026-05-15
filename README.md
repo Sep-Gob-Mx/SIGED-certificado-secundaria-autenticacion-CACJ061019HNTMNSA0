@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CACJ061019HNTMNSA0
+CACJ061019HNTMNSA0
